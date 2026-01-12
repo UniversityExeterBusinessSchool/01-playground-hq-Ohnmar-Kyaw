@@ -20,3 +20,4 @@ could be a playground frame
 Why it has to be H-H and 3 peaks?
 
 
+![IMG_0477](https://github.com/user-attachments/assets/82af46cc-6497-4c44-8189-db348eb3eef9)
